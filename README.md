@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on **AI projects, NLP solutions, and web applications.**  
 - 📫 How to reach me:  
   - Email: [ahteshamshah11@gmail.com](mailto:ahteshamshah11@gmail.com)    
-  - Fiverr:[[fiverr.com/s/Q7jKgWP](https://www.fiverr.com/s/Q7jKgWP)](https://www.fiverr.com/s/EgbBNN7)
 - 😄 Pronouns: **He/Him**  
 - ⚡ Fun fact: **I combine AI and Mathematics to solve real-world problems!**  
 
